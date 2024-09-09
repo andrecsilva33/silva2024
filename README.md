@@ -3,8 +3,8 @@
 ## 😎 Olá, me chamo André!
 
 Sou Técnico em Química e Administração, atualmente trabalho como Operador de Estação de Tratamento de Água e Efluente Indústrial.
-Profissional com mais de 15 anos de experiência nesta área, gosto muito de eletronica, informática e inovação tecnológica, pois sei que o futuro avança muito rápidamente!
-Gosto de ser autodidata ler e aprender com pessoas e experiências vividas no dia a dia e colocando em prática, pois sei que para cada erro haverá um acerto.
+Profissional com mais de 15 anos de experiência nesta área, gosto muito de eletrônica, informática e inovação tecnológica, pois sei que o futuro avança muito rápidamente nesta área!
+Gosto de ser autodidata ler e aprender com pessoas e com as experiências vividas no dia a dia, colocando em prática os ensinamentos, pois sei que para cada erro haverá uma ou mais formas de acerta.
 
 *****
 
