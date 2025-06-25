@@ -1,4 +1,4 @@
-# 🤗 Wellcome!
+# 🤗 Welcome!
 
 ## 😎 Olá, me chamo André!
 
